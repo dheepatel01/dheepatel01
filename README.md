@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dheepatel01
+- 👋 Hi, I’m @dheerajpatel
 - 👀 I’m interested in ...editing,graphic designing
 - 🌱 I’m currently learning PS,Ae
 - 💞️ I’m looking to collaborate on ...
